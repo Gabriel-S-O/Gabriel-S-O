@@ -1,8 +1,8 @@
-<h2 align="left">Salve, Ego sum Gabriel ( ͡~ ͜ʖ ͡°)</h2>
+<h2 align="left">Salve, Ego sum Gabriel 🚀</h2>
 
 ###
 
-<i>There is no problem without a solution</i>
+I strongly believe that <i><b>There is no problem without a solution</b></i>
 
 ###
 
